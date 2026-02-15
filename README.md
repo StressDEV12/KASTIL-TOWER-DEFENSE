@@ -1,2 +1,0 @@
-# KASTIL-TOWER-DEFENSE
-make your STRATEGY! 
